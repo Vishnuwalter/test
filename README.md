@@ -12,3 +12,4 @@ answer
 6. E or F
 7. B ???
 8. C and A
+can anyone send last code 
